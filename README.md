@@ -5,16 +5,16 @@
 
 最新地址发布页：
 
-http://laojinyoupin.com/
+http://laojin.cc/
 
 
 https://github.com/laojinyoupin/laojin
 
 
-永久地址： http://laojinyoupin.com/
+永久地址： http://laojin.cc/
 
-<div><a href="https://laojinzhenxuan.com/" target="_blank">最新地址1</a></div>
-<div><a href="https://laojin.cc" target="_blank">最新地址2</a></div>
-<div><a href="https://haha007.com" target="_blank">最新地址3</a></div>
+<div><a href="https://laojin.vip" target="_blank">最新地址1</a></div>
+<div><a href="https://laojin.club" target="_blank">最新地址2</a></div>
+<div><a href="https://laojin.xyz" target="_blank">最新地址3</a></div>
 
 
