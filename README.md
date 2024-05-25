@@ -13,8 +13,7 @@ https://github.com/laojinyoupin/laojin
 
 永久地址： http://laojin.cc/
 
-<div><a href="https://laojin.vip" target="_blank">最新地址1</a></div>
-<div><a href="https://laojin.club" target="_blank">最新地址2</a></div>
-<div><a href="https://laojin.xyz" target="_blank">最新地址3</a></div>
+<div><a href="https://laojin.me" target="_blank">最新地址1</a></div>
+
 
 
