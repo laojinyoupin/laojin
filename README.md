@@ -5,17 +5,21 @@
 
 最新地址发布页：
 http://laojin.cc/
+
 http://laojin.vip/
+
 https://github.com/laojinyoupin/laojin
 
 1、老金百货最新地址（2025.5）
 
 https://laojin1.xyz/
+
 https://laojinbaihuo.xyz/
 
 2、老金优品最新地址（2025.5）
 
 https://fkwxljyp.xyz/
+
 https://laojin42.xyz/
 
 
