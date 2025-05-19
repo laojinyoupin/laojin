@@ -18,9 +18,7 @@ https://laojinbaihuo.xyz/
 
 2、老金优品最新地址（2025.5）
 
-https://fkwxljyp.xyz/
-
-https://laojin42.xyz/
+https://www.laojin-2025.xyz/
 
 
 
