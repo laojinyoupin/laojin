@@ -4,7 +4,7 @@
 只要发一封任意内容邮件,到邮箱：laojinyoupin@gmail.com 系统会自动回覆最新地址
 
 最新地址发布页：
-http://laojin.cc/
+http://laojin.cc/(不加s，是http)
 
 http://laojin.vip/
 
@@ -22,7 +22,6 @@ https://www.laojin-2025.xyz/
 
 
 
-<div><a href="https://laojin.me" target="_blank">最新地址1</a></div>
 
 
 
