@@ -11,6 +11,8 @@ https://github.com/laojinyoupin/laojin
 
 1、老金百货最新地址（2025.6.13）
 
+https://ljbh61302.xyz/
+
 https://ljbh0613.xyz/
 
 https://ljbh0607.xyz/
