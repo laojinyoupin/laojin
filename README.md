@@ -9,21 +9,19 @@ http://laojin.vip/
 
 https://github.com/laojinyoupin/laojin
 
-1、老金百货最新地址（2025.6.13）
+1、老金百货最新地址（2025.7.5）
 
 https://ljbh61302.xyz/
 
-https://ljbh0613.xyz/
-
 https://ljbh0607.xyz/
 
-https://ljbh0526.xyz/
+2、老金优品最新地址（2025.7.5）
 
-2、老金优品最新地址（2025.6.7）
+https://ljyp.xyz/
 
 https://lj0607.xyz/
 
-https://laojin-2024.xyz/
+
 
 
 
