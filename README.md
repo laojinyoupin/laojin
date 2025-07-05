@@ -15,12 +15,16 @@ https://ljbh61302.xyz/
 
 https://ljbh0607.xyz/
 
+https://ljbh0704.xyz/（移动用户访问）
+
+
 2、老金优品最新地址（2025.7.5）
 
 https://ljyp.xyz/
 
 https://lj0607.xyz/
 
+https://ljyp0704.xyz/（移动用户访问）
 
 
 
