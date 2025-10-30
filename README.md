@@ -20,13 +20,15 @@ https://ljbh831.xyz/
 
 
 
-2、老金优品最新地址（2025.9.15）
+2、老金优品最新地址（2025.10.31）
+
+https://ljyp1030.xyz/
 
 https://ljyp0913.xyz/
 
 https://ljyp831.xyz/
 
-https://ljyp0801.xyz/
+
 
 
 
