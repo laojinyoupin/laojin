@@ -4,25 +4,33 @@
 只要发一封任意内容邮件,到邮箱：laojinyoupin@gmail.com 系统会自动回覆最新地址
 
 最新地址发布页：
-https://laojin.one/
-https://laojin.vip/
-
 https://github.com/laojinyoupin/laojin
 
-1、老金百货最新地址（2026.1.6）
-
-https://ljbh105.xyz/
-
-https://ljbh1217.xyz/
-
-https://ljbh1205.xyz/
-
-https://ljbh1018.xyz/
+https://laojin.one/
+https://laojin.vip/
+https://laojin8.vip/
+https://laojin.ai/
 
 
-2、老金优品最新地址（2025.12.6）
+1、老金百货最新地址（2026.8.29）
 
-https://ljyp1205.xyz/
+https://ljbh825.xyz/
+
+https://ljbh1999.xyz/
+
+https://ljbh717.xyz/
+
+2、老金优品最新地址（2026.8.29）
+
+https://ljzx818.xyz/
+
+https://ljzx801.xyz/
+
+https://ljzx718.xyz/
+
+3、老金优品最新地址（2026.8.29）
+
+https://ljyp327.xyz/
 
 
 
