@@ -12,13 +12,10 @@ https://laojin8.vip/
 https://laojin.ai/
 
 
-1、老金百货最新地址（2026.10.3）
+1、老金百货最新地址（2026.10.28）
 
-https://ljbh1002.com/
+https://ljbh1027.xyz/
 
-https://ljbh909.com/
-
-https://ljbh901.com/
 
 2、在线影城最新地址（2026.10.3）
 
